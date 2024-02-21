@@ -1,4 +1,4 @@
 # Martix-Launcher
 A Minecraft Launcher
 
-Powered by wzhy233(https://space.bilibili.com/3537123286190803) & minecraftmc22(https://space.bilibili.com/474478022)
+Powered by wzhy233(https://www.youtube.com/@wzhy233) & minecraftmc22([https://space.bilibili.com/474478022](https://www.youtube.com/@minecraftmc22)https://www.youtube.com/@minecraftmc22)
